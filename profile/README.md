@@ -1,1 +1,1 @@
-## WE'RE SO ~~NOT~~ BACK!
+## WE'RE SO BACK!
